@@ -15,7 +15,7 @@ Olá! Meu nome é Kayo Pabllo. e gosto de tecnologia e desenvolvimento de sistem
 📫 **Como me encontrar**:  
 - GitHub: [Kayo0800](https://github.com/Kayo0800)
 - Email: pabllokayo0@gmail.com
-- Me siga no Instagram: [@marqs_grm](https://www.instagram.com/marqs_grm) 
+- Me siga no Instagram: [@marqs_grm]
 
 Vamos crescer e construir algo incrível juntos! ✨  
 
